@@ -1,1 +1,0 @@
-# Qayamat_birthaday
